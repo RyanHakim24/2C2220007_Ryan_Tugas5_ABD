@@ -1,0 +1,1 @@
+# 2C2220007_Ryan_Tugas5_ABD
